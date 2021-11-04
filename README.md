@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @RubyJackulin
+- 👋 Hi, I’m RubyJackulin
 
